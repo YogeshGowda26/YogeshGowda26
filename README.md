@@ -1,5 +1,5 @@
 # 💫 About Me:
-Electronics Engineer <br>Embedded Systems | VLSI
+Passionate about Embedded Systems, Software & Electronics | Continously Learning & Building| VLSI |
 
 
 ## 🌐 Socials:
